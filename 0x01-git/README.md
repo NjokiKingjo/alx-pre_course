@@ -1,1 +1,1 @@
-Njoki is amazing
+Slowly getting a hang of it!
